@@ -1,3 +1,4 @@
+<meta name="google-site-verification" content="h6fxqWAIOf3rJyYfhIZ3nurBcGbz1hcbN2kTm0_0rQo" />
 <div align="center">
   <img src="https://magic-pixel.pockethost.io/image/h6zcbr4k34weazc/Github" />
   <a href="https://kooperlingohr.com/">
